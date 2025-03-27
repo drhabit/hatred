@@ -11,7 +11,7 @@ I am not particularly friendly but I will make small talk if approached.
   Whispers are the best way to reach me at these times. C + H is fine. <br>
   If you annoy me I will perma-block you. I am a hater, and the block button is my dear companion. <br>
   Fun 1x fact: every time I log on to Pony.Town someone decides they want me so badly.<br> <br>
-  <a href="https://dominoeffect.straw.page/">Here is my straw.page. Leave me a message if you would like.</a>
+  <a href="https://dominoeffect.straw.page/">Here is my Straw.Page. Leave me a message if you would like.</a>
 
 
 

@@ -4,7 +4,7 @@
 
 ## <p align="center"><b>THIS ROUND'S KILLER IS... 1X1X1X1</b></p>
 
-<p align="center">I also go by "Rex". Any pronouns. Introject of <a href="https://roblox.fandom.com/wiki/Community:1x1x1x1">the Roblox myth.</a> 
+<p align="center">I also go by "Rex", "[The] Adversary". Any pronouns. Introject of <a href="https://roblox.fandom.com/wiki/Community:1x1x1x1">the Roblox myth.</a> 
 <br> As well as various other iterations of 1x1x1x1, identifying most with <a href="https://forsaken2024.fandom.com/wiki/1x1x1x1">the Forsaken killer</a>. <br>
 I am not particularly friendly but I will make small talk if approached. 
   <br> I use an all-caps typing quirk and speak in a manner that is somewhat archaic. <br> <br>
